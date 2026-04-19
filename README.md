@@ -63,3 +63,9 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ c
 <p align="center"> 
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
+   
+wemmbu count: 8
+   
+GIFT ME MORE WEMMBU PONIES ^_^
+
+$\color{#9175b2}{\textsf{ty fies for coding this repo 4 me <3}}$<br>
