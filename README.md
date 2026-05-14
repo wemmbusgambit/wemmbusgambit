@@ -57,7 +57,8 @@ $\color{#b893e5}{\textsf{whisp 2 int! i love 2 chat but i miss whisps often ‎ 
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
 <h4 align="left">$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i'm jst one alter in a system}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ if u friend me on pt, u may not always b talking 2 me}}$<br>
-$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ iffy w/ sourcemates so ask b4 talking abt source stuff. source doubles dni unless completely detached}}$<br>
+$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ UU sourced. iffy w/ sourcemates so ask b4 talking abt source stuff.}}$<br>
+$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ source doubles dni unless completely detached}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ check syswide info 4 more dni + other stuff}}$</h4>
 
 <p align="center"> 
