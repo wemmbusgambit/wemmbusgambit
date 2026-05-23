@@ -70,4 +70,4 @@ wemmbu count: $\color{yellow}{\text{11}}$
 GIFT ME MORE WEMMBU PONIES ^_^
 or whisp me if u have pony comms :P
 
-$\color{#9175b2}{\textsf{ty fies for coding this repo 4 me c:}}$<br>
+$\color{#9175b2}{\textsf{ty fies [@odyssial](https://github.com/odyssial) for coding this repo 4 me c:}}$<br>
